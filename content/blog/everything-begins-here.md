@@ -4,6 +4,7 @@ date: 2026-04-01T07:56:04.840Z
 ---
 
 
+
 Recently, my life has been really tough. Endless peer pressure and the uncertainty of the future are continuously troubling me.
 
 What if I cannot get into the PhD program I want?
@@ -23,6 +24,6 @@ For research, it is better to try to solve a problem than to scroll through infi
 
 For Math Review, it is pretty clear that your previous method was useless and boring. So be happy to try the new method and aim for solid results. For each subject, choose one question you are interested in but are not very familiar with (that's easy, because you have almost forgotten everything) and that still corresponds to decoupling or other fields you are researching. Then follow the question and let it grow into a long line, even a huge net.
 
-For English, it is very important, and you really want to do it well. But time is finite, so sufficient success needs some tricks. There are plenty of resources you can read, watch, write, sing, listen to, or even play with. But make it a habit, definitely not reciting vocabulary. It should be the English thought box made by yourself. It is very much like the way you learned Chinese. So think in English and write it down. Do not just copy other people’s thoughts word by word. Remember, expressing yourself is not that hard. Writing a diary every day is a wonderful idea, because you have to push yourself to squeeze something out in English from your whole day. And your effort will never ever betray you.
+For English, it is very important, and you really want to do it well. But time is finite, so sufficient success needs some tricks. There are plenty of resources you can read, watch, write, sing, listen to, or even play with. Make it a habit, definitely not reciting vocabulary. It should be the English thought box made by yourself. It is very much like the way you learned Chinese. So think in English and write it down. Do not just copy other people’s thoughts word by word. Remember, expressing yourself is not that hard. Writing a diary every day is a wonderful idea, because you have to push yourself to squeeze something out in English from your whole day. And your effort will never ever betray you.
 
 So let’s do it. Here is just where everything starts.
